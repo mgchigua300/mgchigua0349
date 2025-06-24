@@ -21,7 +21,7 @@
 
 点击访问：<a href="https://hj-264.pages.dev/">分享永不</a>
 
-点击访问：<a href="https://hj-267.pages.dev/">海角禁区</a>
+点击访问：<a href="https://hj-267.pages.dev/">抖音黑料</a>
 
 点击访问：<a href="https://hj-268.pages.dev/">今日吃瓜海角社区</a>
 
@@ -59,4 +59,4 @@ Telegram频道传送门：汇集优质频道资源，涵盖科技、娱乐、学
 
 《51吃瓜》是一个实时更新的娱乐资讯平台，专注分享明星八卦、网络热点、社会趣闻等内容。这里有最新的爆料、最全的吃瓜信息，是网友了解娱乐圈动态、放松解压的首选平台。每天来51吃瓜，精彩不断。
 
-[Canonical link](https://github.com/mgchigua300/mgchigua0949）
+[Canonical link](https://github.com/mgchigua300/mgchigua0349）
